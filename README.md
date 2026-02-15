@@ -1,6 +1,6 @@
 # a
 
-https://aibizhi.ml/
+https://aibizhi.tk
 
 https://a.pages.dev
 
